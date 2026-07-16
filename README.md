@@ -1,0 +1,1 @@
+Blog pindah ke sini.
